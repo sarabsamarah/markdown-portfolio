@@ -1,5 +1,5 @@
-* spending time with family.
-* Dancing 
+* Spending time with family.
+* Dancing. 
 * Eating foods from all over the world.
-* travel 
-* yoga
+* Travel.
+* Yoga.
