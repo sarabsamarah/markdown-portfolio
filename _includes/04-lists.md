@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+* spending time with family.
+* Dancing 
+* Eating foods from all over the world.
+* travel 
+* yoga
