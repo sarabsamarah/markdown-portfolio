@@ -1,1 +1,6 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+*problem solver*
+__helpful__
+*generous*
+*team player*
+_advocate_
+*committed*
